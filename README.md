@@ -19,3 +19,9 @@ https://gamebanana.com/members/2739690
 https://github.com/stars/SixelAlexiS90/lists/switch-mods
 
 https://www.cheatslips.com/
+
+
+## Xenoblade chronicles 3 infomation for res mods
+
+![Gz7UJBH](https://github.com/user-attachments/assets/77c7debd-fd1c-4940-8235-e8de35bf8d33)
+
